@@ -1,0 +1,1 @@
+There' re some programs which can be the way to make a confession to the girl you love.
